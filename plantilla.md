@@ -1,10 +1,10 @@
-## tu nombre
+## Samuel Carpena Soria
 
-#### módulo
+#### 2DAM LM
 
 ### Preguntas del día dd/mm/aa
 
-1. Tu respuesta:
+1. Tu respuesta:awdawd
 
 2. Tu respuesta:
 
